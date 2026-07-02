@@ -6,7 +6,7 @@
 피어난 불꽃처럼  
 <div align="center">
 
-<h2>@kamiebun</h2>
+<h2>@vintesea</h2>
 
 </div>
 <p align="center">
