@@ -30,6 +30,5 @@ my editor is @dawnsummer
 87/86 metioned 
 
 </div>
-Soạn
-Viết cho Hoàng Duy
+
 
