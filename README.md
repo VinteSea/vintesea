@@ -13,7 +13,7 @@
 <img src="https://i.pinimg.com/originals/a5/81/eb/a581ebd0b8ff3d04fae875a1c79592f0.gif" height="500">
 <div align="center">
 
-my editor is @dawnsummer
+
 
 </div>  
 <p align="center">
