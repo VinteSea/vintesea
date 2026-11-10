@@ -1,5 +1,7 @@
 <p align="center">
-<img src="https://i.pinimg.com/originals/ae/40/34/ae403454bb2551fdd665a625a63a959b.gif" height="500">
+<img src="https://i.pinimg.com/originals/a5/81/eb/a581ebd0b8ff3d04fae875a1c79592f0.gif" height="500">
+<div align="center">
+
  𝓵𝓲𝓼𝓽𝓮𝓷 𝓽𝓸 𝓽𝓱𝓮​<br>
 𝔀𝓸𝓷𝓭𝓻𝓸𝓾𝓼 𝓼𝓸𝓾𝓷𝓭𝓼 𝓸𝓯 𝓽𝓱𝓮 𝓸𝓬𝓮𝓪𝓷<br>
 イチゴのケーキ<br>
@@ -9,11 +11,6 @@
 <h2>@vintesea</h2>
 
 </div>
-<p align="center">
-<img src="https://i.pinimg.com/originals/a5/81/eb/a581ebd0b8ff3d04fae875a1c79592f0.gif" height="500">
-<div align="center">
-
-
 
 </div>  
 <p align="center">
