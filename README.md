@@ -1,9 +1,9 @@
 <p align="center">
 <img src="https://i.pinimg.com/originals/ae/40/34/ae403454bb2551fdd665a625a63a959b.gif" height="500">
- 𝓸𝓱 𝓶𝔂 𝓬𝓵𝓮𝓶𝓪𝓽𝓲𝓼​<br>
-𝓭𝓸𝓷𝓽 𝓵𝓸𝓸𝓴 𝓫𝓪𝓬𝓴, 𝔀𝓮𝓻𝓮 𝓲𝓷 𝓽𝓱𝓮 𝓭𝓪𝓻𝓴<br>
-그늘진 이 세계에<br>
-피어난 불꽃처럼  
+ 𝓵𝓲𝓼𝓽𝓮𝓷 𝓽𝓸 𝓽𝓱𝓮​<br>
+𝔀𝓸𝓷𝓭𝓻𝓸𝓾𝓼 𝓼𝓸𝓾𝓷𝓭𝓼 𝓸𝓯 𝓽𝓱𝓮 𝓸𝓬𝓮𝓪𝓷<br>
+그대여<br>
+나와 함께 별이 가득한 하늘을 날아보아요.  
 <div align="center">
 
 <h2>@vintesea</h2>
@@ -21,14 +21,12 @@
 <div align="center">
   
 <a href="https://guns.lol/vintersea">gun</a> ;
-<a href="https://kamiebun.atabook.org/">ata</a>
+<a href="https://kamiebun.atabook.org/)">ata</a>
 
 </div>
   
 <div align="center">
 
-87/86 metioned 
 
-</div>
 
 
