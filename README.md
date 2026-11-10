@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.pinimg.com/originals/a5/81/eb/a581ebd0b8ff3d04fae875a1c79592f0.gif" height="500">
+<img src="https://i.pinimg.com/originals/a5/81/eb/a581ebd0b8ff3d04fae875a1c79592f0.gif" height="400">
 <div align="center">
 
  𝓵𝓲𝓼𝓽𝓮𝓷 𝓽𝓸 𝓽𝓱𝓮​<br>
