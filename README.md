@@ -2,8 +2,8 @@
 <img src="https://i.pinimg.com/originals/ae/40/34/ae403454bb2551fdd665a625a63a959b.gif" height="500">
  𝓵𝓲𝓼𝓽𝓮𝓷 𝓽𝓸 𝓽𝓱𝓮​<br>
 𝔀𝓸𝓷𝓭𝓻𝓸𝓾𝓼 𝓼𝓸𝓾𝓷𝓭𝓼 𝓸𝓯 𝓽𝓱𝓮 𝓸𝓬𝓮𝓪𝓷<br>
-그대여<br>
-나와 함께 별이 가득한 하늘을 날아보아요.  
+イチゴのケーキ<br>
+
 <div align="center">
 
 <h2>@vintesea</h2>
